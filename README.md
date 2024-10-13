@@ -2,7 +2,6 @@
 
 
 - 🔭 I’m currently working on problems that I want to solve
-- #####  🥼 🧪 This is my creative lab for continuous learning and innovation.
 
 
 
