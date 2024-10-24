@@ -1,4 +1,4 @@
-## Hi 👋,  I am Cesar Nsingi.
+## Hi ,  I am Cesar Nsingi.
 
 
 - 🥼 🧪 This is my lab.
